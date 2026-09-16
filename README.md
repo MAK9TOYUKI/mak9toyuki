@@ -40,6 +40,8 @@ $\color{#546c9b}{ 𝄞⨾𓍢ִ໋ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ₊ �
 
 <img width="500" height="281" alt="animesher com_yukari-takeba-makoto-yuki-manga-598081" src="https://github.com/user-attachments/assets/6dc3f527-ceaf-414b-9faa-ff1957f5d5c9" />
 
+⌢⌢⌢⌢⌢୨୧⌢⌢⌢⌢⌢
+
 [straw](https://yusukekitagawaa.straw.page/)
 ㅤ
 ㅤ♪
