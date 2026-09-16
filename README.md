@@ -17,9 +17,13 @@ $$\color{#478192}{\text{**♡**}}$$
       
 $\color{#89b1b7}{ ♬˚₊‧　 𝗩𝗮𝗻𝗰𝗲ㅤㅤ/ㅤㅤ 𝙊𝙬𝙚𝙣ㅤㅤ♡}$
 
-$$\color{#9b888c}{\text{**♡**}}$$
+$$\color{#7bb1db}{\text{**♡**}}$$
 
 $\color{#314e85}{๑　　༝ㅤㅤ꩜ㅤㅤnonㅤㅤbinary ㅤㅤ  + ㅤㅤ asexualㅤㅤ…}$
+
+$$\color{#adddf3}{\text{**♡**}}$$
+
+$\color{#546c9b}{ 𝄞⨾𓍢ִ໋ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ₊ 𝗠𝗶𝗻𝗼𝗿    　　༝　 }$
 
 
 ⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄
@@ -45,6 +49,52 @@ $\color{#314e85}{๑　　༝ㅤㅤ꩜ㅤㅤnonㅤㅤbinary ㅤㅤ  + ㅤㅤ ase
 ㅤ♪
 ㅤ
 ㅤ[pronouns](https://en.pronouns.page/@makotoyuki)
+
+
+
+<div align="center"><img width="548" height="5" alt="tumblr_3e996abd6d9ff1c3a43beca9262999b6_80e7d143_2048" src="https://github.com/user-attachments/assets/c12bfb9d-1a69-45d2-9296-9d6b0f6084b9" />
+
+
+$$\color{#0e415d}{\text{}}$$
+
+
+$$\color{#dd73a0}{\text{**♡**}}$$
+
+
+<img width="70" height="20" alt="tumblr_2c47788a0f3700b07a5fdde8501cc9da_7e6ce79b_75 (1)" src="https://github.com/user-attachments/assets/d00dae7d-0521-4f68-91f9-56051309f5c1" />
+
+
+<img width="70" height="20" alt="tumblr_ad3147d9403cdc357535d95006083621_015d6954_75" src="https://github.com/user-attachments/assets/06cc68b5-344e-47cb-a126-8d013bcc82c5" />
+
+
+$$\color{#adddf3}{\text{**♡**}}$$
+
+
+
+$$\color{#0e415d}{\text{}}$$
+
+
+
+<img width="99" height="56" alt="tumblr_0b7efcd205881ad2e5154e38f322b42c_c53ea188_100" src="https://github.com/user-attachments/assets/2cec5b8f-130c-4da5-9781-edb6afe5c562" />
+
+
+
+<img width="99" height="56" alt="tumblr_49af5b743059325b14b87660ded0ec35_d383267b_100" src="https://github.com/user-attachments/assets/1d9fa48f-7420-4849-a1c7-ddc0359621d1" />
+
+
+
+$$\color{#0e415d}{\text{}}$$
+
+
+
+<img width="1500" height="800" alt="uGgzHhU" src="https://github.com/user-attachments/assets/ce390519-a43c-412f-a4f7-b609d90b07e4" />
+
+
+
+
+
+<img width="1700" height="50" alt="tumblr_69be962708878082c7854cd5eace1385_7c7fa7a5_400" src="https://github.com/user-attachments/assets/7d8e5ab2-3cb7-4612-9faa-026bc6a3c263" />
+
 
 
 
